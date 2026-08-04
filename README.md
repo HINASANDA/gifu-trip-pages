@@ -1,1 +1,0 @@
-# gifu-trip-pages
